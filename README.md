@@ -1,22 +1,12 @@
-- 👋 Hi, I’m @MagicVipPeople
-- 👀 Токен VWS в dedust.io 🪙
-И скоро листинг на xRocket 🎁
-✅С 24 января Boost a pool 5$  Scale
-Всем кто создал Pool VWS/TON 
-Получите 3 вида наград от VWS и  Dedust.io 💸
-Адрес добавьте в dedust.io  Swap 👀✍️ :    Кэшбек за покупку VWS Кэшбек за ликвидность VWS/TON и и бонусы  Scale
+-MVP community member management token
+Useful Mining VWS token     Game chats with 17 kinds of tokens
+Rewards for levels 17 kinds of tokens and 
+Fireworks rewards 17 kinds of tokens for chatting in our chats
+Mining NFTs https://getgems.io/virtualsworlds
+https://dedust.io/swap/TON/VWS
+Chats  mining $VWS tokens + 17 token varieties https://t.me/MagicNFTcollections https://t.me/VirtualsWorlds https://t.me/MagicVipClub https://t.me/MagicVipPeople 
+Moderates chat, helps with giveaways, contests, and collaborations. Use our tier system to identify and reward the most active members of your community: reward them with cryptocurrency and release a whitelist (WL), give out rewards https://t.me/AirdropVWSbot
+PooL Boost ++++++$ Rewards in different coins as well as Scale in all our Pools will be added regularly Everyone who created a VWS/TON pool Get 3 types of rewards from VWS Cashback for VWS purchases. Cashback for VWS/TON liquidity as well as numerous bonuses in Scale +17 different coins and Get 17 kinds of tokens for chatting in our chatrooms 
+Bonuses   in this bot https://t.me/AirdropAiNetwork_bot
 
-EQBfX9KO5yIFprHWPpJp3OsX-6cjLjEJF-h5uIQE3eLJY8_h
-
-
-https://dedust.io/pools/EQCCa6jA_VzoQi76cAHmumoJfZbglVtY-DL-k8-f9h3vUOy2
-
-
-
-Chat holders 
-https://t.me/MagicNFTcollections
-
-<!---
-MagicVipPeople/MagicVipPeople is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
 --->
