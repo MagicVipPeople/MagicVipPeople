@@ -10,3 +10,4 @@ PooL Boost ++++++$ Rewards in different coins as well as Scale in all our Pools 
 Bonuses   in this bot https://t.me/AirdropAiNetwork_bot
 
 --->
+https://ton.app/chats/mining-vws-and-mvp?id=1529
